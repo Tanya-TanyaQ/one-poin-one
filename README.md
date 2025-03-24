@@ -1,1 +1,1 @@
-# one-poin-one
+# one-point-one
